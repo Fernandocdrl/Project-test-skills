@@ -1,0 +1,1 @@
+Olá me chamo Fernando e tenho orgulho de apresentar minha jornada e práticas para me tornar um Dev.
